@@ -1,1 +1,1 @@
-# prithvikumardetne.github.io
+# prithvikumardetne
